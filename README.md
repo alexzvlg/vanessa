@@ -1,2 +1,1 @@
-# vanessa
-Vanessa's recipes site.
+Index header picture by Tony Smith from pexels.com
